@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @leewaii
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning andrew tate's word
+- 💞️ I’m looking to collaborate on tiktok
+- 📫 How to reach me, nobody can reach me 
+- 😄 Pronouns: al/mo/ra/nas
+- ⚡ Fun fact: ;))
